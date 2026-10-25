@@ -1,3 +1,0 @@
-hanyang
-university
-erica
